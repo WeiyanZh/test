@@ -1,3 +1,0 @@
-# Weiyan Zhang
-
-Personal blog
